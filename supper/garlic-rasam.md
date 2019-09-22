@@ -48,4 +48,5 @@ Nå er kunsten å få dette til å klaffe tidsmessig med resten, men ikke noe kr
 - Tøm alt fra stekepannen over i kjelen med linsene og kok opp igjen
 - La det koke i 5 minutter til
 - Skvis oppi all saften fra limen, rør rundt og smak til med salt
+- Ta suppen i skåler og kast litt ekstra korianderblader på toppen til pynt
 - Serveres gloheit alene eller sammen med ris eller godt brød
