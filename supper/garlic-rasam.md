@@ -43,7 +43,7 @@ Nå er kunsten å få dette til å klaffe tidsmessig med resten, men ikke noe kr
 - Når det knitrer bra tar du oppi spisskumen-hvitløk-chili-mosen og lar det frese noe sekunder
 - Ta opp i ingefær, de hele hvitløksfeddene, curry leaves, korianderblader og løken
 - Fres til løken blir blank og myk før du tar oppi tomatene
-- Når tomatene er skikelig mushy tar du i tamarind paste og 2,5 del vann
+- Når tomatene er skikelig mushy tar du i tamarind paste og 2,5 dl vann
 - Kok opp, ta i rasam-pulveret, skru ned temperaturen litt og det koke i 5 minutter
 - Tøm alt fra stekepannen over i kjelen med linsene og kok opp igjen
 - La det koke i 5 minutter til
