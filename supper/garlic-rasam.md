@@ -29,7 +29,7 @@ Den er for det meste plukket [fra denne oppskriften](https://holycowvegan.net/ga
 Bruker du tørkede linser så legg de i bløt 1 time i kaldt vann.
 Tøm ut vannet, skyll de og la det renne av seg.
 
-Ta 2 av hvitløksfeddene og lage en mos av de sammen med spisskumenfrø og chili.
+Ta 2 av hvitløksfeddene, lag en mos av de sammen med spisskumenfrø og chili.
 
 ## Fremgangsmåte
 
