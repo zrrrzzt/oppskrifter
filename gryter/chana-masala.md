@@ -23,8 +23,8 @@ Dette er en litt modifisert av en oppskrift jeg fant på [saritas.no](https://ww
 ## Fremgangsmåte
 
 - Ha olje, løk og hel spisskummen i en gryte på lav varme
-- Når løken er my, skru opp temperaturen til løken blir gylden
-- Ha oppi hvitløk, chili, ingefær og kaffir lime blader la frese 1 minutt
+- Når løken er myk og lett gjennomsiktig, skru opp temperaturen til løken blir gylden
+- Ha oppi hvitløk, chili, ingefær og kaffir lime blader. La frese 1 minutt
 - Ha oppi de kuttede tomatene og la frese et par minutter
 - Ha oppi boksen med hakkede tomater og la koke 3 - 4 minutter
 - Ta i Garam masala, salt om malt spisskumen og rør godt
