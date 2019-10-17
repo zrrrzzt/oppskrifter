@@ -14,8 +14,8 @@ Dette er en litt modifisert av en oppskrift jeg fant på [saritas.no](https://ww
 - 2 ts grønn chili paste
 - 400 g hakkede tomater
 - 2 tomater kuttet i biter
-- 2 ss Garam Masala
-- 1 ss Spisskummen malt
+- 1 ss Garam Masala
+- 2 ts Spisskummen malt
 - 5 kaffir lime blader
 - 2 ts salt
 - 5 dl vann
