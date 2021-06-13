@@ -1,12 +1,16 @@
 # Bánh Mì
 
-Bánh Mì betyr vel egentlig brød, men jeg forbinder det som regel med baguetter med nydelig fyll.
-Dette er en veldig enkel variant som sannysnlig ikke er 100 prosent autentisk men som funker som ei kule likevel.
+Bánh Mì betyr vel egentlig brød på vietnamesisk, men jeg forbinder det som regel med baguetter med nydelig fyll.
+
+Dette er en veldig enkel variant som sannsynligvis ikke er 100 prosent autentisk men som funker som ei kule likevel.
+
 Fyllet er chilimajones, råkost, kjøttboller og koriander.
 
 ## Chilimajones
 
-Jeg tok hurtigvarianten og skammer meg ikke. Om du vil ta det et steg videre lager du majones selv og blander inn en finhakket chili.
+Jeg tok hurtigvarianten og skammer meg ikke.
+
+Om du vil ta det et steg videre lager du majones selv og blander inn en finhakket chili.
 
 - Hellmann's majones
 - Sriracha Super Hot Chili Sauce (Flying Goose Brand)
