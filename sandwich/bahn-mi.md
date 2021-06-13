@@ -6,13 +6,13 @@ Fyllet er chilimajones, råkost, kjøttboller og koriander.
 
 ## Chilimajones
 
-Jeg tok hurtigvarianten og skammer meg ikke. Om du vil da det et steg videre lager du majones selv og blander inn en finhakket chili.
+Jeg tok hurtigvarianten og skammer meg ikke. Om du vil ta det et steg videre lager du majones selv og blander inn en finhakket chili.
 
 - Hellmann's majones
 - Sriracha Super Hot Chili Sauce (Flying Goose Brand)
 - Saft fra en halv lime
 
-Bland til du liker det og set i kjøleskapet enn så lenge.
+Bland til du liker det og sett i kjøleskapet enn så lenge.
 
 ## Råkost
 
@@ -36,11 +36,12 @@ Bland sammen det flytende og løs opp sukkeret. Ha oppi koriander og chili og se
 - 1 purre, del i to på langs, skjør i tynne skiver
 - 1/2 kinakål strimlet
 
-Bland alt veldig godt og bland til sist inn dressingen etter beste evne
+Bland alt veldig godt og vend til sist inn dressingen etter beste evne
 
 ## Kjøttboller
 
-Dette blir ca 30 kjøttboller. Jeg er veldig lat så jeg steker de i panne for å få farge/skorpe og ettersteker i oven 200 grader i 12 minutter.
+Dette blir ca 30 kjøttboller.
+Jeg er veldig lat så jeg steker de i panne for å få farge/skorpe og ettersteker i oven 200 grader i 12 minutter.
 
 - 600 gram kjøttdeig av svin
 - 2 ss maizenna
@@ -55,7 +56,7 @@ Stek godt i panne, eller stek skorpe i panne og etterstek 12 min på 200 grader 
 
 ## Sett sammen
 
-- stek baguetter, lad de kjøle seg litt før du starter
+- stek baguetter, la de kjøle seg litt før du starter
 - start med chilimajones
 - ta på et godt lag råkost
 - kjøttboller (evt del de i 2 om de er vriene å få plass til)
