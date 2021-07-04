@@ -12,10 +12,10 @@ Gulrøtter er som regel greit å få tak i, daikon finner du i dagligvare med go
 - 1 ss fint salt
 
 ### Lake
-- 5 ss hvitt sukker
-- 4 ss hvit eddik
-- 2,5 dl vann
-- 1,5 dl kokende vann
+- 10 ss hvitt sukker
+- 8 ss hvit eddik
+- 5 dl vann
+- 3 dl kokende vann
 
 ## Fremgangsmåte
 
@@ -26,9 +26,10 @@ Gulrøtter er som regel greit å få tak i, daikon finner du i dagligvare med go
 
 ### Lag laken
 
-- kok opp 1,5 dl vann
+- kok opp 3 dl vann
 - ta til siden og løs opp sukkeret
-- tøm i det kalde vannet og eddiken
+- tøm i eddiken
+- tøm i det kalde vannet
 - bland godt og ha det over grønnsakene i glasset
 
 ## Sylting
