@@ -69,6 +69,7 @@ Stek godt i panne, eller stek skorpe i panne og etterstek 12 min på 200 grader 
 ### Ta det ett steg videre
 
 Varianten som jeg har beskrevet over er kjempegod, men om du har lyst til å ta det enda litt videre er det fullt mulig.
-- server med agurk for ekstra crunch
+- server med agurk for ekstra crunch (gjerne miniagurker)
 - server med fersk chili av middels styrke. f.eks, jalapenos
 - server med [Đồ Chua](do-chua.md) (syltet gulrot og daikon)
+- splash over litt soyasaus

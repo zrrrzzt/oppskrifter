@@ -20,7 +20,7 @@ Gulrøtter er som regel greit å få tak i, daikon finner du i dagligvare med go
 ## Fremgangsmåte
 
 - skrell og skjær daikon og gulrøtter i fyrstikktynne strimler (kan bruke mandolin)
-- bland de i en stor bolle, strø over salt, bland med og la stå i 15 minutter
+- bland de i en stor bolle, strø over salt, bland mer og la stå i 15 minutter
 - skyll av saltet, rist de godt for å bli kvitt vannet. Ta gjerne opp håndfuller og skvis det av
 - fyll de i et egnet glass med tett lokk
 
@@ -38,3 +38,6 @@ Smak på de etter to dager og deretter daglig til du smiler.
 Når du synes de smaker slik du vil setter du glasset i kjøleskap og der kan det holde seg i flere uker.
 Når de mister crunchen eller blir for syrlige er det på tide å lage en ny batch.
 
+# Kilder
+
+Jeg har her blitt inspirert av [Hungry Huy](https://www.hungryhuy.com/)
