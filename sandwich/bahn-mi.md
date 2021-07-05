@@ -44,7 +44,7 @@ Bland alt veldig godt og vend til sist inn dressingen etter beste evne
 
 ## Kjøttboller
 
-Dette blir ca 30 kjøttboller.
+Dette blir ca 60 kjøttboller.
 Jeg er veldig lat så jeg steker de i panne for å få farge/skorpe og ettersteker i oven 200 grader i 12 minutter.
 
 - 600 gram kjøttdeig av svin
@@ -55,6 +55,7 @@ Jeg er veldig lat så jeg steker de i panne for å få farge/skorpe og etterstek
 - nesten 1/2 korianderbusk finhakket, stilker, blader og det hele
 
 Bland alt godt sammen og la det stå i ca 30 minutter før du former små boller av det hele.
+Bruk f.eks. en teskje for å få riktig størrelse.
 
 Stek godt i panne, eller stek skorpe i panne og etterstek 12 min på 200 grader i stekeovn
 
