@@ -41,4 +41,5 @@ Når de mister crunchen eller blir for syrlige er det på tide å lage en ny bat
 
 # Kilder
 
-Jeg har her blitt inspirert av [Hungry Huy](https://www.hungryhuy.com/)
+Jeg har her blitt inspirert av
+- [Hungry Huy](https://www.hungryhuy.com/)

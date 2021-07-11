@@ -78,3 +78,8 @@ Varianten som jeg har beskrevet over er kjempegod, men om du har lyst til å ta 
 - server med fersk chili av middels styrke. f.eks, jalapenos
 - server med [Đồ Chua](do-chua.md) (syltet gulrot og daikon)
 - splash over litt soyasaus
+
+# Kilder
+
+Jeg har her blitt inspirert av:
+- [Alt asiatisk](https://www.altasiatisk.no/)
