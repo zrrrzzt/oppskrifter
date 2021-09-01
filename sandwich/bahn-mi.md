@@ -7,8 +7,11 @@ Dette er en veldig enkel variant som sannsynligvis ikke er 100 prosent autentisk
 Fyllet er chilimajones, råkost, kjøttboller og koriander.
 
 Vietnamesiske baguetter er lette og luftige på innsiden og har en tynn, sprø skorpe.
-Det er ikke så lett å få tak i, men du kan få en ganske god etterligning og du bruker store, ferske pølsebrød.
+Det er ikke så lett å få tak i, men du kan få en ganske god etterligning om du bruker store, ferske pølsebrød.
 Spray pølsebrødene lett med vann og stek de på rist i ovn på 225 grader i 5 minutter.
+
+Noe av det fineste med denne retten... du kan lage det meste klart kvelden i forveien.
+Når du skal spise så kan du bare varme kjøttbollene raskt mens baguettene steker og ellers kose deg og slappe av :-)
 
 ## Chilimajones
 
